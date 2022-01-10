@@ -1,4 +1,0 @@
-# Livro de Receitas :chicken:
-
-
-
